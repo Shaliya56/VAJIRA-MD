@@ -1,6 +1,6 @@
 <div align="center">
      
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=ＶＡＪＩＲＡ+ＭＤ+ＷＨＡＴＳＡＰＰ+ＢＯＴ)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=؄͜͡亗『ＳＨＡＬＩ』亗+ＭＤ+ＷＨＡＴＳＡＰＰ+ＢＯＴ)](https://git.io/typing-svg)
 
   
 <div align="center">
@@ -22,25 +22,25 @@
 
 ## Bot deploy in whatsapp biussness then not banned
 
-## Try Pairing code in to device then not comes session error https://wa.me/94719199757
+## Try Pairing code in to device then not comes session error https://wa.me/94761167172
 
 <b><details><summary>𝗦𝗢𝗖𝗜𝗔𝗟 𝗧𝗬𝗣𝗘𝗦</summary><br>
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/94719199757)
+[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/94761167172)
 
 ## JOIN SUPPORT GROUP
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/D6w6Qy5yrhp7MmfNcprbO3)
+[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/KYtYDN7vZK3336MT1Cgqcd)
 
 ## MY WA CHANNEL
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VadExMQHwXb9GtsC1A24)
+[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)]()
 
 ## MY YT CHANNEL
 
-[![Youtube](https://telegra.ph/file/eebe86c26e98ffeae39ea.jpg)](https://youtube.com/@gamingewingyt6216) 
+[![Youtube](https://telegra.ph/file/eebe86c26e98ffeae39ea.jpg)]() 
 
 </details>
 
@@ -82,7 +82,7 @@ Voice helper  | Developer, Bug Fixes, Modules |Developer,Bug Fixes,Base, Modules
 
 <hr>
 
-## HOW TO DEPLOY 👨‍💻 ＶＡＪＩＲＡ - ＭＤ - Ｖ4 👨‍💻
+## HOW TO DEPLOY 👨‍💻 ؄͜͡亗『ＳＨＡＬＩ』亗 - ＭＤ 👨‍💻
 
 </div>
 
