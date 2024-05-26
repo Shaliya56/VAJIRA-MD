@@ -12,7 +12,7 @@
 
 <p align="center">
 <a href="https://github.com/VajiraTech">
-    <img src="https://telegra.ph/file/03f1eccdcb525a5e1a6ad.jpg"  width="700px">
+    <img src="[ https://www.imghippo.com/i/Xbr5A1716730632.jpg   "  width="700px">
 </a>
 <hr>
 
